@@ -1,6 +1,6 @@
 ![Thank you, crypto!](1.gif)
 
-[![About me](2.gif)](https://example.com)
+[![About me](2.gif)](https://github.com/thankyoucrypto)
 
 <div align="center">
 
