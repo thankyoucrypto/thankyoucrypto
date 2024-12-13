@@ -56,8 +56,8 @@
 
 ## 🌐 Join my Socials
 
-### [📢 --> Alpha TG-channel](https://t.me/vpoiskahgema)
-### [💬 --> Alpha TG-chat](https://t.me/vpoiskahchata)
+### [📢 --> Alpha TG-channel](https://t.me/yolo_gems)
+### [💬 --> Alpha TG-chat](https://t.me/yolo_gems_chat)
 ### [👤 --> Personal TG](https://t.me/UsernameX777)
 
 <br>
